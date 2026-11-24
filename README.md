@@ -1,0 +1,1 @@
+# RoyaltySMPWiki.github.io
